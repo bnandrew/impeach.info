@@ -10,8 +10,8 @@ Donald Trump has committed too many impeachable offenses to remember them all wi
 
 # 3. Everyday Indiscretions
 
-# 4. Lawful* but Awful
+# 4. Lawful[^1] but Awful
 
-\* Actual lawfulness is TBD.
+[^1]: Actual lawfulness is TBD.
 
 # Bonus Section! Complete Buffoonery
