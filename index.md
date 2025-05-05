@@ -1,0 +1,17 @@
+# Donald Trump should be impeached.
+
+Donald Trump has committed too many impeachable offenses to remember them all without writing them down. Herewith, a list of as many of them as I can remember. And new ones are being added every day!
+
+# 1. High Crimes and Misdemeanors
+
+## 2025
+
+# 2. Despicable Conduct
+
+# 3. Everyday Indiscretions
+
+# 4. Lawful* but Awful
+
+\* Actual lawfulness is TBD.
+
+# Bonus Section! Complete Buffoonery
