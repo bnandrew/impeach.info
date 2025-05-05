@@ -2,7 +2,7 @@
 
 Donald Trump has committed too many impeachable offenses to remember them all without writing them down.
 
-Herewith, a list of as many of them as I can remember. And he's committing new ones every day!
+Herewith, a list of as many of them as I can remember. This list will be updated as he commits new ones each day!
 
 # 1. High Crimes and Misdemeanors
 
