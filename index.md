@@ -1,6 +1,8 @@
 # Donald Trump should be impeached.
 
-Donald Trump has committed too many impeachable offenses to remember them all without writing them down. Herewith, a list of as many of them as I can remember. And new ones are being added every day!
+Donald Trump has committed too many impeachable offenses to remember them all without writing them down.
+
+Herewith, a list of as many of them as I can remember. And he's committing new ones every day!
 
 # 1. High Crimes and Misdemeanors
 
