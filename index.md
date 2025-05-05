@@ -12,6 +12,8 @@ Donald Trump has committed too many impeachable offenses to remember them all wi
 
 # 4. Lawful[^1] but Awful
 
-[^1]: Actual lawfulness is TBD.
-
 # Bonus Section! Complete Buffoonery
+
+# Footnotes
+
+[^1]: Actual lawfulness is TBD.
